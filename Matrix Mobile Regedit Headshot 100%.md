@@ -1,10 +1,13 @@
-- 👋 Hi, I’m @Hariroy9800
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 👋 Hi, I’m Dark Man
+- 👀
+
+Free Fire Aimbot 100%
+Free Fire Aimlock 100%
+Free Fire Sensitivity 100%
+
+YouTube : Subscribe Now Guy's 🔥
+https://youtube.com/@itz-dark-itzyt?si=MZzzi1IgFAsZ0pRA
+
 
   Matrix Mobile Regedit Apk Link
   https://www.mediafire.com/file/3kf3ansxu16ymfy/Matrix+Mobile+Regedit.apk/file
